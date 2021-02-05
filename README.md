@@ -1,4 +1,4 @@
-# Data Science And Business Analytics Internship-By-The-Spark-Foundation-INDIA🌟
+# Data Science And Business Analytics Internship-By-The-Sparks-Foundation-INDIA🌟
 #WORKFROMHOME
 #2021
 
